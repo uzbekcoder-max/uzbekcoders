@@ -1,5 +1,4 @@
 **UZBEK python CODERS**
 
-![](https://cdn1.telesco.pe/file/Sp2NjKpkjqNLgNEuExX1V_KXx2dLJ93nqEgB52yhw1t2fH_j5FgeoynfALN4Hela7sESday5rkzje9V1LK-m3S8qEC5rhrsb8CEGKCtsRdodiFivlwXY6zWo0AMH3UefzT7lRrPfUmFfSwBRqdqnv9iv0SiLq2ZNrpF6x0Ocs9zX9b6YXOHb0Ecf1S1t70EtwGT4DdjtFBDx8mwhcGe-F3kk8FLe_xZqXXsAf3hgDjfQjZMfhS5jkZ_RpzryfLNf3NUiXUSjx3I4MCf0D0C44r5JByR4sQvhLdwYpnyy18bLhmNRan9-fbdqTETXUjgFeJ1C3Wf-mawzbcnnTu9uqg.jpg)
 
 [Uzbek coders](https://t.me/coder_live) Telegram kanaliga kiring!
