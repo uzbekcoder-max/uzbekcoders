@@ -1,4 +1,4 @@
-**UZBEK python CODERS**
+**PYTHON BLOG**
 
 
-[Uzbek coders](https://t.me/coder_live) Telegram kanaliga kiring!
+[PYTHON BLOG](https://t.me/coder_live) Telegram kanaliga kiring!
